@@ -5,19 +5,19 @@ developing a PROXIA to count traffic.
  
 🤖 THE ABC 123 GROUP ™ 🤖
 
-- GENERAL CONSULTING ABC 123 BY OSAROPRIME ™.
+🌐 GENERAL CONSULTING ABC 123 BY OSAROPRIME ™.
 
-- ABC 123 USA ™
+🌐 ABC 123 USA ™
 
-- ABC 123 DESYGN ™
+🌐 ABC 123 DESYGN ™
 
-- ABC 123 FILMS ™
+🌐 ABC 123 FILMS ™
 
 =============================================================
 
-                     MAGENTRON ™
+                     🌐 MAGENTRON ™ 🌐
                      
-ARTIFICIAL INTELLIGENCE 2.0 ™ : TRAFFIC COUNTING PROXIA B (SENSE: VISION_EYE CAMERAS)
+🌐 ARTIFICIAL INTELLIGENCE 2.0 ™ : TRAFFIC COUNTING PROXIA B (SENSE: VISION_EYE CAMERAS)
 
 MAGNETRON 4.0 ™ (PUBLIC ROADWAYS)
 
